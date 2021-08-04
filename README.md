@@ -13,7 +13,7 @@
 - 相信妖存在，对三次元女生不感兴趣
 - 喜欢推素晴日，你可以通过以下渠道找到我
 
-HomePage：https://www.ailliom.yxz
+HomePage：https://www.ailliom.xyz
 
 Blog：https://blog.ailliom.xyz
 
