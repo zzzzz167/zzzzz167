@@ -6,15 +6,14 @@
 
 - ~~尽管要上学但还是可以网上冲浪~~
 - 是一名稍有阅历的galgame玩家
-- 主要使用python开发
-- 目前正在学习ONS与前端开发
-- 相信妖存在，~对三次元女生不感兴趣~, 好吧其实是对庸俗之人不喜欢(有喜欢的人了捏).
+- 主要使用python开发 RUST 万岁
+- 目前正在学习设计与前端开发
+- 相信妖存在，~~对三次元女生不感兴趣~~, 好吧其实是对庸俗之人不喜欢(有喜欢的人了捏).
 - 喜欢推素晴日，你可以通过以下渠道找到我
 
 HomePage：<https://www.ailliom.xyz>
 
 Blog：<https://blog.ailliom.xyz>
-NewBlog: <https://new.ailliom.xyz>
 
 QQ:2742400566
 
