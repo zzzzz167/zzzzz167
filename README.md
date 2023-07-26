@@ -11,9 +11,9 @@
 - 相信妖存在，~~对三次元女生不感兴趣~~, 好吧其实是对庸俗之人不喜欢(有喜欢的人了捏).
 - 喜欢推素晴日，你可以通过以下渠道找到我
 
-HomePage：<https://www.ailliom.xyz>
+HomePage：<https://www.renkonti.top>
 
-Blog：<https://blog.ailliom.xyz>
+Blog：<https://blog.renkonti.top>
 
 QQ:2742400566
 
